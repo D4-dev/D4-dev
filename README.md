@@ -19,7 +19,7 @@
 ──────────────────
 </p>
 
-> 🔕》From [@ryn](https://github.com/ryn-user)
+> 🔕》From [@D4'](https://github.com/sdsosdsoqdkfsdq)
 
 <p align="center"> 
   <br>Nombre de vues: <br>
